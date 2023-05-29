@@ -1,4 +1,4 @@
-### Hi there 👋
+### bah,se deus quiser eu aprendo alguma coisa aqui :D
 
 <!--
 **yasmimUwU1B/yasmimUwU1B** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
